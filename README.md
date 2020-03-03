@@ -1,0 +1,2 @@
+# programing
+kő-papír-olló
